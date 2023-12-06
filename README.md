@@ -9,4 +9,4 @@ Hi there 👋
 - 👯 I’m looking to collaborate on solving technically complex problems
 - 📫 How to reach me: https://www.linkedin.com/in/relaxrajput/
 - 📫 How to reach me: https://www.instagram.com/dreamer.rajput/
-- ⚡ Fun fact: I have a youtube channel too! 
+- ⚡ Fun fact: None yet.
